@@ -1,6 +1,6 @@
 # ISEF
 
 yo bet
-we locked in fr -Prathyay
+we are locked in fr -Prathyay
 
 also ask pikesville where is our car
